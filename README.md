@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kirubakarkannan
 - 👀 I’m interested in learning
-- 🌱 I’m currently learning Digital marketing
+- 🌱 I’m currently learning Data analytics
 - 💞️ I’m looking to collaborate on advancements
 - 📫 How to reach me 9025809089
 
